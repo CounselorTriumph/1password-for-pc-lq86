@@ -1,4 +1,4 @@
-# 
+# exclusive 1Password for PC | 1Password for Windows Integration | emergency-access + tags offers the most advanced 1Password for PC | 1Password for Windows integration, with
 
 
 
